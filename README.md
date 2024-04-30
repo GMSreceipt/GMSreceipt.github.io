@@ -1,0 +1,1 @@
+# GMSreceipt.github.io
